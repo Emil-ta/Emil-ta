@@ -1,2 +1,2 @@
 Emily Tang
-Majoring in Computer Science and Mathmematics at Northeastern Univeristy
+Majoring in Computer Science and Mathematics at Northeastern University
